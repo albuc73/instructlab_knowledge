@@ -68,3 +68,8 @@ In Monchi's two years at the club, he spent £208 million on 21 signings, while 
 Under Ranieri, Roma failed to qualify for the Champions League, finishing 6th.
 In December 2019, AS Roma SPV LLC was in final negotiations to sell the team for $872 million, to American businessman Dan Friedkin, however negotiations stalled during the COVID-19 pandemic. On 6 August 2020, Friedkin signed the preliminary contract to agree to pay $591 million to Pallotta, the main shareholder of Roma.
 Paulo Fonseca, who was hired as manager in 2019, left two years later and was replaced by fellow Portuguese José Mourinho. On 25 May 2022, he led Roma to win the inaugural edition of UEFA Europa Conference League, defeating Feyenoord in the final.In September 2024 it was reported that club owners are interested in purchesing the Premier League club of Everton. Club owners claim, it will not effect Roma.
+Currently, AS Roma has the following score in the national competitions:
+
+3 Scudetto Winners: 1941–42, 1982–83, 2000–01
+9 Coppa Italia Winners: 1963–64, 1968–69, 1979–80, 1980–81, 1983–84, 1985–86, 1990–91, 2006–07, 2007–08
+2 Supercoppa Italiana Winners: 2001, 2007
